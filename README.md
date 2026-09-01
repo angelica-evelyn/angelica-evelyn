@@ -6,7 +6,6 @@
 -I am a proshipper, darkshipper and multishipper, so if you are uncomfortable with any of those things i'd suggest not interacting with me
 -I am a yumeshipper too! i am a sharing yume of Severus Snape from Harry Potter
 -I am in MULTIPLE fandoms, so we might share a lot of interests in common!
--My favorite games are Minecraft, Undertale and The Stanley Parable
--I am NOT WSS but i do still like Wilbur Soot, with him being one of my main interests
--Still on the topic of Wilbur Soot, i am a Simpbur fictionkin!
+-My favorite games are Minecraft and Sally Face
+_i am a Simpbur fictionkin!
 -I have social anxiety, so i might be quite shy at first, but i promise im quite fun once you get to know me!
